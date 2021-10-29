@@ -1,2 +1,0 @@
-# IT-SPK-
-Web-Site
